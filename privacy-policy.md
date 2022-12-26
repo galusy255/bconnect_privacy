@@ -22,3 +22,6 @@ At times it is difficult to weigh certain vegetables or fruits exactly as per th
 If some product is not available or is not of good quality, the same item will not be delivered and will be adjusted accordingly in the invoice; all rights in this regards are reserved with Biashara Connect. Images of Fruits & Vegetables present in the website are for demonstration purpose and may not resemble exactly in size, colour, weight, contrast etc; though we assure our best to maintain the best quality in product, which is being our foremost commitment to the customer.
 
 All orders placed before 11 PM in the Night will be delivered next day or as per delivery date chosen.
+
+
+Email: info@biasharaconnect.co.tz
